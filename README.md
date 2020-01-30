@@ -1,1 +1,1 @@
-# Week 5 assingments
+# Week 5 assignments
